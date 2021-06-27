@@ -1,1 +1,21 @@
 # teenhacks_read
+
+![unknown](https://user-images.githubusercontent.com/35862574/123555384-4aec3080-d73a-11eb-9473-7bd94c414fbf.png)
+![unknown-1](https://user-images.githubusercontent.com/35862574/123555386-4c1d5d80-d73a-11eb-8cb6-f97db97734e3.png)
+![unknown-2](https://user-images.githubusercontent.com/35862574/123555399-5fc8c400-d73a-11eb-93fa-bd9df6ef08bb.png)
+![daniel](https://user-images.githubusercontent.com/35862574/123555401-61928780-d73a-11eb-9c22-3c35f7032d93.png)
+![manav](https://user-images.githubusercontent.com/35862574/123555403-62c3b480-d73a-11eb-898c-a75dd2fe7c9a.png)
+![jonathan](https://user-images.githubusercontent.com/35862574/123555404-66573b80-d73a-11eb-9a03-909a3408097f.png)
+![sarah](https://user-images.githubusercontent.com/35862574/123555407-6820ff00-d73a-11eb-86b3-53f5a020c918.png)
+![unknown-3](https://user-images.githubusercontent.com/35862574/123555409-6a835900-d73a-11eb-8cff-eddfed256929.png)
+![unknown](https://user-images.githubusercontent.com/35862574/123555454-a61e2300-d73a-11eb-9d6c-2757f67b0e63.png)
+![image0](https://user-images.githubusercontent.com/35862574/123555456-a8807d00-d73a-11eb-92fb-030f2d1343e4.png)
+![Screenshot_2021-06-27_105701](https://user-images.githubusercontent.com/35862574/123555458-aa4a4080-d73a-11eb-895c-ed401fc3c668.png)
+![Screenshot_2021-06-27_105713](https://user-images.githubusercontent.com/35862574/123555460-acac9a80-d73a-11eb-8967-a937a6563968.png)
+![Screen_Shot_2021-06-27_at_9](https://user-images.githubusercontent.com/35862574/123555463-afa78b00-d73a-11eb-9fdd-86040d7cd16b.png)
+![Screen_Shot_2021-06-27_at_9-1](https://user-images.githubusercontent.com/35862574/123555464-b1714e80-d73a-11eb-8432-6735828683fa.png)
+![Simulator_Screen_Shot_-_iPhone_12_-_2021-06-27_at_09](https://user-images.githubusercontent.com/35862574/123555465-b33b1200-d73a-11eb-8100-9dae7c128339.png)
+![Simulator_Screen_Shot_-_iPhone_12_-_2021-06-27_at_09-1](https://user-images.githubusercontent.com/35862574/123555468-b59d6c00-d73a-11eb-9b87-ab61db92f3d2.png)
+![Screen_Shot_2021-06-27_at_10](https://user-images.githubusercontent.com/35862574/123555471-b8985c80-d73a-11eb-8c21-f8ece08ee0af.png)
+![image0-1](https://user-images.githubusercontent.com/35862574/123555472-bb934d00-d73a-11eb-9af6-16813e2da826.png)
+
